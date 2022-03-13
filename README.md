@@ -1,0 +1,3 @@
+-Hello I'm Jake, a 13 year old boy that loves to program!
+-Like I've said, I like to program, draw, and make music!
+-You can contact me at jakeytdiscord@gmail.com
